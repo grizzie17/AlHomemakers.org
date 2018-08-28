@@ -1,2 +1,2 @@
-# alhomemakers.org
+# AlHomemakers.org
 Alabama Homemakers Club
